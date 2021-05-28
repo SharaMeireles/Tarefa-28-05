@@ -3,3 +3,5 @@
 Beatriz Fernandes
 
 Shara Karoline Meireles de Santana 
+
+Pedro Fernando P. Tavares
