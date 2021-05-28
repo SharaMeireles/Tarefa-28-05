@@ -8,4 +8,4 @@ Vitória Silva dos Reis
 
 Isabella Silveira Avelar
 
-Pedro Fernando
+Pedro Fernando Páscoa Tavares
